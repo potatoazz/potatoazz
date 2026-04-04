@@ -16,9 +16,9 @@ Hope you enjoy your stay ⋆𐙚 ̊.
 
   . ❥ ּ֯ ┆꒰ Fandoms .ᐟ ꒱
 </ul>
-<liv></liv>~PJSK
-<liv></liv>~ALNST
-<liv></liv>~Mermaid Forest  ⸝⸝.ᐟ⋆
+<li>~PJSK</li>
+<li>~ALNST</li>
+<li>~Mermaid Forest  ⸝⸝.ᐟ⋆</li>
 </ul>
 
 </p>
