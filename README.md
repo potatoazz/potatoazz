@@ -16,9 +16,9 @@ Hope you enjoy your stay ⋆𐙚 ̊.
 
   . ❥ ּ֯ ┆꒰ Fandoms .ᐟ ꒱
 <p>~PJSK
-</p>~ALNST
-<p></p>~Mermaid Forest  ⸝⸝.ᐟ⋆
-
+<p>~ALNST
+<p>~Mermaid Forest  ⸝⸝.ᐟ⋆
+</p>
 ♡ ENANAN! & LUKA ໒꒱ིྀ༝⁺ 
 
 @chocokittiiez my darlingᥫ᭡
