@@ -19,8 +19,9 @@ Hope you enjoy your stay ⋆𐙚 ̊.
 <liv></liv>~PJSK
 <liv></liv>~ALNST
 <liv></liv>~Mermaid Forest  ⸝⸝.ᐟ⋆
-</p>
+</ul>
 
+</p>
 ♡ ENANAN! & LUKA ໒꒱ིྀ༝⁺ 
 </p>
 @chocokittiiez my darlingᥫ᭡
