@@ -26,4 +26,4 @@ Hope you enjoy your stay ⋆𐙚 ̊.
 </p>
 @chocokittiiez my darlingᥫ᭡
 
-![Image](https://github.com/user-attachments/assets/2b12e947-ead1-45e0-8054-f942627dd42b)
+![Image](https://github.com/user-attachments/assets/26fa9596-7431-4005-9b3c-6a9007d9f4e7)
